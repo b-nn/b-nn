@@ -1,1 +1,1 @@
-just go to my github page if you want to find more about me
+just go to lowkey.gay if you want to find more about me
